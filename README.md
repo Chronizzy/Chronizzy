@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chronizzy
 - 👀 I’m interested in rizz
-- 🌱 I’m currently learning rizz
+- 🌱 I’m currently learning being a rizzler, jizzler and python
 - 💞️ I’m looking to collaborate on rizz
 - 📫 How to reach me on Discord: Chronizzy#0594 if you're rizz
 
